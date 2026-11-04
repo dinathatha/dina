@@ -1,1 +1,1 @@
-# dina
+Saya akan segera membuatkan media pembelajaran interaktif dan game edukasi mata pelajaran IPS Kelas VII tentang "Kegiatan Ekonomi" lengkap dengan kuis 5 soal, LKPD, umpan balik suara, dan desain bertema hijau muda yang ceria sesuai permintaan Anda.
